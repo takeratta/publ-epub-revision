@@ -156,10 +156,10 @@ Working drafts for commenting:
 
   * [2015-03-26](https://docs.google.com/document/d/1CAqbePGLG56RbOgoyrs5F70wCfycFTN_GoMq5ZPrZOQ/)
 
-  * 2015-04-02 No Call
+  * 2015-04-02 - No Call
 
   * [2015-04-09](https://docs.google.com/document/d/1fTwHviJOzQUJ4tJKILsW9FiWErC4_J8F3RAfT8aRAys/)
 
   * [2015-04-16](https://docs.google.com/document/d/1ATP79l-dn4C-kEwXnsN_Ayu4EbexMd1AddnCisvUkVA/)
 
-  * 2015-04-23 No Call
+  * 2015-04-23 - No Call
